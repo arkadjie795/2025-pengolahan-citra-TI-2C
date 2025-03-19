@@ -1,0 +1,1 @@
+# 2025-pengolahan-citra-TI-2C
